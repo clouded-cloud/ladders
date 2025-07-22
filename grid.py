@@ -1,0 +1,2 @@
+
+So I have been seeing your stories on IG...you know the"i have a boyfriend " I must admit the pics are fire but kwani your guy doesn't have money😂....my instincts tell me this a plan btw you and your +1 my money wont comeback.sorry  I cant help you😜😜🫵🏿😂😂😂
